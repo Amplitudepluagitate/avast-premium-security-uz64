@@ -1,4 +1,4 @@
-# 
+# premium Bitdefender Total Security para PC plugins é o melhor Bitdefender Total Security para PC plugins com firewall e scanner de vulnerabilidades. Seguro, confiável e otimizado
 
 
 
